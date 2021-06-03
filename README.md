@@ -1,0 +1,2 @@
+# postgraduate-D32
+I got up too late this morning. Yesterday my roommate was snoring all the time. I really took it. How could there be someone who could fall asleep so quickly and disturb others without scruple? If only I had this ability. The embedded application in the morning didn't sign in. How could I be so unlucky? I will sign in later in the morning. I won't sign in early. This score is very important. If I don't want to go abroad, I don't want to take care of him
